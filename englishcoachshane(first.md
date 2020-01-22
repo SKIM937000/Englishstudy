@@ -25,6 +25,7 @@
 	and in daily english,people trans sump n to something.
 the t of cant is often cancelled.
 something
+
 5.*I have come here to chew bubblegum and kick ass…and I m all out of bubblegum.*
   **to:to…tah…tuh…t'…dah…duh…d'**
   kick ass
@@ -33,6 +34,7 @@ something
   out of ：outta
   **anahmoloutta**connected
   bubblegum-->bob gun
+  
 6.*the secret of life is just to live every moment.*
 **secreto …… juss t liv every** 
 - carpe diem!sieze the day!
@@ -41,6 +43,7 @@ something
 - live-->leave
 - 2,000,000,000
 - thousand->million->billion
+
 7.*another **rogue trader** has **cost** a bad billions.*
 
 > another rule treater has compand bad billions
@@ -64,12 +67,14 @@ sth cost sb somemoney/other things.
 sb pay somemoney/other things for somethihng.
 
 Rolf Buchholz  piercings
+
 8.*German, Rolf Buchholz,is the man with the most piercings .he has got 453.*
 - is the(t is cancelled)it can sound ‘zuh’
 - withe
 - mospiercings
 - fourhunredfiftythree
 - AP news 美联社新闻
+
 9.*a satellite that was carried to space aboard the shuttle Discovery 20 years ago is about to fall to Earth but nobody knows where the debris will hit.*
 - astronomical …… telescope
 - **satellithat**   **carryt'** 
@@ -86,12 +91,14 @@ v.频繁往来（于甲地和乙地之间）；（在较近的两地之间定时
 n.碎片；残骸；破片；残渣
 网络碎屑；废墟；岩屑
 搭配radioactive debris；
+
 10.*it's a lofty,probably impossible goal*
 	- lofty
 	- impossible->in passby
 	- goal->go
 	- **the 't' is cancelled.**
 	- Lofty:very high goal,almost a dream.dream is almost impossible.
+	
 11.*New York swept the Tampa Bay Rays by identical 4-2 score in a day-night doubleheader Wednesday.*
 
 > they are sweep temp baris by a …… 14 scores in a day-night double hands win's day.(somethings right,somethings wrong)
@@ -101,6 +108,7 @@ n.碎片；残骸；破片；残渣
 - identical means the same same.
 - doubleheader:two games in one day.
 - four d' two
+
 12.*Jim Henson ,creator of the Muppets---from Kermit the Frog to Sesame Streat---is born in Greenvile,mississippi.*
 
 - mississippi:MS
@@ -109,10 +117,12 @@ n.碎片；残骸；破片；残渣
 - Kermit the frog...Sesame Street(乱猜
 - creartor of->creat
 - jim henson->jahanson
+
 13.*Asian Tiger Mosquitoes are native to the tropics of Southeast of Asia,but in the past few years they've spread all across the Southeasten of United States.*
 - sting
 - **naitved'**
 - **butinnuh**t is cancelled.
+
 14.*Cats reputely has 9 lives ,and he clearly wants to spend at least one of them here in the New York City.*
 -  reputely：supposely;somebody tell me that...;there's a rumor that...；
 -  clearly:absoutely;there's no question;without a doubt;
@@ -120,6 +130,7 @@ n.碎片；残骸；破片；残渣
 -  **aleast**t is cancelled.
 -  **oneothem**f is cancelled.
 -  ***New York City***the prounciation
+
 15.*the frantic pacing--scene changes every 11 seconds on average--often leads kids zoned out and spun up;unable to concentrate*
 
 > the proo of ptercy seems change every 11 seconds on lanuages often lives through on the up,unable a conse trip.
@@ -128,6 +139,7 @@ n.碎片；残骸；破片；残渣
 - zone out:e.g. people watch TVs，he is zoned out.(全神贯注)，he is gone.
 - spin up :get high
 - **unabled**
+
 16.*Battered,soaked and flooded,the Philippines is being hit by its second typhoon in a week*
 > they had so a flood,the phiphins has been hit second typhoon in a week.
 - batter:hit,contiunious,repeatly,constantly hit
@@ -135,6 +147,7 @@ n.碎片；残骸；破片；残渣
 - **typhoonina**
 - enthanasia n.die happily
 - tsunami
+
 17.*A few years ago they were thought to be useless--past their prime--not now.*
 > A few years ago they will find it to be useless pass the pride not now.
 - they:stray dogs
@@ -143,10 +156,12 @@ n.碎片；残骸；破片；残渣
 - **thoughto**
 - **pastheir**
 - prime: the best year of your life!!!!i love the word!!!
+
 18.*if you are breathing,it's not too late.get up and get going.*
 > if you are brezzing,it's not too late,get up get loing.
 - **ifyouare**sounds ifeware
 - **notoo**
+
 19.*A 67-year-old grandpa has been found alive after being stuck for 6 days at the bottom of a ravine.*
 > A 67-year-old grandpa has been found a live and has been starfled 6 days that about a very vim.
 - **sixtysevenyearold**
@@ -156,6 +171,7 @@ n.碎片；残骸；破片；残渣
 - **athebottomofa** 
 - ferris wheel:摩天轮
 - ultralight plane:超轻型飞机
+
 20.*Saturday an ultralight plane crashed into a ferris wheel at a rural festival in Australia yet somehow no one on the amusement ride nor the plane was hurt.*
 > Saturday a ultralight plane crash to a ferris wheel and rule festival in the somehow no one in the plane was hurt.
 - **anultralightplane**
@@ -168,6 +184,7 @@ n.碎片；残骸；破片；残渣
 - Darwinist:进化论主义者，达尔文主义者
 - an opossum:负鼠a little animal has cross-eyes
 - cross-eye
+
 21.*Heidi won the world over with her forever cute but slightly confused look.*
 > Hady wa...(wear/want) a over a very cute but s likely confused look.
 - win the world over (with)……:
@@ -176,6 +193,7 @@ n.碎片；残骸；破片；残渣
 - **wither**
 - **confuselook**d is cancelled
 - the dead sea scrolls:死海经卷，最古老的希伯来文圣经抄本
+
 22.*the project to put them online is expected to be completed by 2016.*
 > the project put my lines is expected to complicted by 2016.
 - expected means anticipated/thought. 
@@ -190,6 +208,7 @@ n.碎片；残骸；破片；残渣
 - confess: 承认 
 - busted:被当场逮住（adj.）打破，摔碎，突击检查（或搜捕）；（使）降级，降低军阶（v.）
 - take care:（告别用语）走好，保重；小心，当心；照顾；照料；爱护，小心
+
 23.*An alleged SAT cheating scandol has been uncovered at a prestigious Long Island high  school.This college student is accused of taking the college entrance exam for at least 6 students.*
 >At a SAT chetings scandom and when he covered the prejudie in loyal high school .this covers a dos cute taking a colorage jaks and japer at least 6 sdows.
 - alleged:声称的，被断言的，怀疑的。the police think you have done something wrong,you are the alleged crinimal.there's no proof,so they hasn't gone to the court.
@@ -202,6 +221,7 @@ n.碎片；残骸；破片；残渣
 - **studenisacussedof**
 - **takeinuh**taking the.g cancel th.
 - **studens**n cancel t.
+
 24.*St loouis takes the world Series opener on a cool night.it was 49degrees at the start of the game.*
 >  St louis takes the word serious/siris open on the KUONAI in a 46 degrees and starts to begin.
 - MLB:major league baseball
@@ -219,6 +239,7 @@ n.碎片；残骸；破片；残渣
 - orange：橙色
 - catastrophe:灾难
 - tragedy:悲剧
+
 25.*They searched for the missing throughout the night under generator-powered flood lights as family members waited by the mounds of debris-some in tear.*
 > the search for the missing geriffe night under the generated havoured fly family night has been remembered with the month degree some len tears.
 - studentable:学习能力的？？？？？？？
@@ -240,6 +261,7 @@ n.碎片；残骸；破片；残渣
 - **moonzeod'bree**n and s cancel d.
 - **somin**
 - generator->January(so embarrassed)
+
 26.*It's the kind of thing you look forward to instead of,you know,some workouts you dread and you think of it as work and this is just fun.*
 > It's kind of seen/seeing/seem you you like the four two understand/in stand you know somework control dread and you think that this work comsess just fun.
 - dread:恐惧，害怕
@@ -251,6 +273,7 @@ n.碎片；残骸；破片；残渣
 - **anjyouthinkofitas**
 - **jussfun**
 - trick or treat:Halloween
+
 27.*Superhero costumes,as usual,are big this year--especially from recent movies like Thor and the Green Lantern.*
 > Superhero custumes/custin that usual er beg these years,especially for some recent movies,like Thor and the Green lantern.
 - costume：服装
@@ -258,6 +281,7 @@ n.碎片；残骸；破片；残渣
 - **recenmovies**n and m cancel t.
 - ironically:讽刺的是
 - spoil：腐烂，变质
+
 28.*It‘s a pain,'cuz my fridge is…I dumped it today,and the food's gone.*
 > It's a pen cancel my frige has down today,foods going on.
 - **I'sapen**s cancel t.
@@ -269,6 +293,7 @@ n.碎片；残骸；破片；残渣
 - **en-nafoodis**
 - jet
 - modest:*ma*
+
 29.*He says he was simply going by the book when it comes to landing without gear,and he and his fellow pilots trainfor these types of incidents.*
 > It's just a simply going by the book when/where the comstan landing when his ears/years his strmc pilot training for this type of accident.
 - execute:处决
@@ -284,6 +309,7 @@ n.碎片；残骸；破片；残渣
 - **pilotstrainfer**
 - **typesof**
 - broccoli:西兰花
+
 30.*It' is the vegetable some love to hate!But now a new breed of broccoli--super broccli--developed in Bratain may protect against heart disease-even some kinds of cancer.*
 > It's a vegetable somes looked hate,but now i knew great/breet broccoli,super broccoli evlopten great maper taste ges hap to Z.even some kind of cancel.
 - love to hate:extreamly hate
@@ -305,6 +331,7 @@ n.碎片；残骸；破片；残渣
 - OWS:occupy wall street
 - demonstration:抗议者
 - mayor：市长
+
 31.*Mayor Sam Adams ordered that the camp be shut down Saturday citing unhealthy conditions and the attraction of drug dealers and thieves.*
 > Mayor some madam inzoled the can be shut down sidewalk siding on healthy conditions on the trations the drug dilors com/cam see years.
 - terminate:终止
@@ -326,6 +353,7 @@ n.碎片；残骸；破片；残渣
 - **thearraction**a vowel
 - **enthieves**
 - Fukashima
+
 32.*A preliminary government report predicts it'll take 30 years or more to safety decommission the facility and it could be decades before nearby residents who were forced to flee can return to the area.*
 > The primena govermd report preliciko take 30 years amound 2nd d commemcation commsder could be decades before nearby residen refoset flay can retened their wears.
 - preliminary:初步
